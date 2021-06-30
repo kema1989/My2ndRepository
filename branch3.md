@@ -1,3 +1,3 @@
 Третий трек Closure:
-"Yes, I got your letter,
-Yes, I'm doing better."
+"Yes, I got ur letter,
+Yes, I'm doin' better."
