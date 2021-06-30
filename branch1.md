@@ -1,3 +1,3 @@
-Первый любимый трек с альбома Тейлор Свифт Evermore под названием Champagne Problems:
+ГЏГҐГ°ГўГ»Г© Г«ГѕГЎГЁГ¬Г»Г© ГІГ°ГҐГЄ Г± Г Г«ГјГЎГ®Г¬Г  Г’ГҐГ©Г«Г®Г° Г‘ГўГЁГґГІ Evermore Champagne Problems:
 "You booked a night train for a reason,
 So you could sit there in this hurt."
