@@ -1,3 +1,3 @@
-Третий трек называется Closure:
+РўСЂРµС‚РёР№ С‚СЂРµРє РЅР°Р·С‹РІР°РµС‚СЃСЏ Closure:
 "Yes, I got ur letter,
 Yes, I'm doin' better."
